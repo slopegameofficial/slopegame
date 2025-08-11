@@ -8,6 +8,9 @@ At its core, Slope is an endless runner where you control a ball racing down a s
 
 But don’t be fooled by the simplicity. As the game speeds up, your reaction time is pushed to the limit. Every second you survive feels like a small miracle.
 
+![slope-3](https://github.com/user-attachments/assets/92de907d-999b-47c4-8f29-bac457f34753)
+
+
 🔥 **Why People Love It**
 
 **It’s Addictive**: There’s always that “just one more try” feeling.
