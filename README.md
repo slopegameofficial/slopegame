@@ -12,30 +12,35 @@ But don’t be fooled by the simplicity. As the game speeds up, your reaction ti
 
 It’s Addictive: There’s always that “just one more try” feeling.
 
+
 Instant Action: No long intros or menus. You hit play, and you're rolling.
 
+
 Skill-Based: No power-ups or cheats — just you, the ball, and your reflexes.
+
 
 Cool Vibes: With its glowing graphics and smooth physics, the game looks and feels futuristic.
 
 🧠 How to Get Better at Slope
-
 Stay Calm: Panicking leads to overcorrecting — and falling.
+
 
 Keep a Wide View: Don’t just watch the ball — scan ahead for danger.
 
+
 Balance is Key: Keep the ball centered on the track whenever possible.
+
 
 Practice: Like most reflex games, your brain gets better with repetition.
 
 🎮 Who Should Play?
-
 Anyone who loves:
-
 Fast-paced reflex games
+
 
 Arcade-style challenges
 
-Endless runners like Temple Run or Geometry Dash
 
+Endless runners like Temple Run or Geometry Dash
 It’s also a solid pick for gamers who want a quick adrenaline rush without downloading anything.
+
